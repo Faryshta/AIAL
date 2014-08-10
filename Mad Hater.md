@@ -6,11 +6,11 @@ MAD HATER
 
 Este es el día más frustante de mi vida.
 
-Veo las caras de todo mundo sintiendose realizado y orgulloso, una celebración a la mediocridad. Reviso el papel que tengo en manos como mi último refugio para encontrar aquello que vine a buscar y nunca me acerqué a encontrar.
+Veo las caras de todo mundo sintiendose realizado y orgulloso, una celebración a la mediocridad. Reviso cada letra del papel que tengo en manos como mi último refugio para encontrar aquello que vine a buscar y nunca me acerqué a encontrar.
 
 Miles de horas, 4 años de  mi vida y sólo sirvieron para que murieran mis esperanzas.
 
-Todos mis compañeros abandonaron la carrera y comenzaron a trabajar, algunos ya tienen sus negocios propios, yo decidí quedarme para encontrar la respuesta, alguna manera de acercarme al descubrimiento de la primer inteligencia artificial
+Todos mis compañeros abandonaron la carrera y algunos ya tienen sus propias empresas, yo decidí quedarme para encontrar algo más grande. La manera de acercarme a la inteligencia artificial
 
 Pero todo lo que aquí llamaban interligencia yo lo llamo conformismo.
 
